@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on projects involving AI, EdTech, AgriTech, or smart systems.
 - 📫 Reach me at: elvistiburu17@gmail.com | [LinkedIn](https://www.linkedin.com/in/elvis-tiburu-kwason-60b3571b3/)
 - 😄 Pronouns: He/Him  
-- ⚡ Fun fact: I grow peppers and dream of turning them into a tech-enabled agribusiness.
+
 
 ---
 
